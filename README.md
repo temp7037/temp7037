@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 I am a student of CCM HSS Karikkattoor
 
 <!--
 **temp7037/temp7037** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
